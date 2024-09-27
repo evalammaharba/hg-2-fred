@@ -1,4 +1,4 @@
-# 🪫🔋 fred 🔋🪫
+# 🗿🗿 fred 🗿🗿
 | Nombre  | Alias | Ubicacion |
 | ------------- | ------------- | ------------- |
 | Juan A. Piñango  | fred  | Venezuela |
